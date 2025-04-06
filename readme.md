@@ -1,0 +1,1 @@
+KISS - Keep It Short and Simple
